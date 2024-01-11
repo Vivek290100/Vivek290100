@@ -1,5 +1,5 @@
 # 💫 Hi, I'm Vivek:
- Intern @ Brototype<br>
+ SOFTWARE ENGINEER<br>
 
 
 ## 🌐 Socials:
