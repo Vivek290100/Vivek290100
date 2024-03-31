@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Vivek:
+# 💫 Hi, I'm Vivek
  SOFTWARE ENGINEER<br>
 
 
